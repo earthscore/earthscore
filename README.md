@@ -1,5 +1,15 @@
-<center><img src="https://64.media.tumblr.com/e36308e3f14307e43e71da6ef1480426/d6ef393917fd6980-ca/s250x400/c0a5ad6719260b49600ed2dd9634d8cfb6c1970e.gifv"> </center>
-<center><H5>COREY OR LUCIUM</H5> He/Bones </center>
-<center> autism & BPD <strong>(sorry!)</strong> </center> <br> <center> <img src="https://supplies.ju.mp/assets/images/tiny1/08de083f.gif?v=6a50b904"> </center>
-<center> <h4>my interests</h4> </center> 
+![img](https://64.media.tumblr.com/b1ac62b264440b4fa17271951254dae0/c4bb2b240eb65858-5d/s500x750/7c77c52ac6d4a1ea907addc41bcbfd2052e98e0c.gifv)
+
+<p align-"center"> <p>
+<img src="https://64.media.tumblr.com/e36308e3f14307e43e71da6ef1480426/d6ef393917fd6980-ca/s250x400/c0a5ad6719260b49600ed2dd9634d8cfb6c1970e.gifv"> 
+<H5>COREY OR LUCIUM <sub>He/Bones</sub> </H5> <br>
+
+
+![buh](https://64.media.tumblr.com/6bd0b990b912d6fa73cc74c48fa60898/964e22b65f1d76bb-4a/s500x750/15e2d4df0ab4ddf7b16e1f3bca696d446cf94b90.gifv)
+ <h4>current interests</h4>
+newscapepro, bee and puppycat, find us alive, just roll with it, <br>origins mcrp,
+oingo boingo, HTML & CSS :3 </p>
+<bold> PLEASE READ MY RENTRY(S)</bold>
+
+![img](https://64.media.tumblr.com/b1ac62b264440b4fa17271951254dae0/c4bb2b240eb65858-5d/s500x750/7c77c52ac6d4a1ea907addc41bcbfd2052e98e0c.gifv)
 
