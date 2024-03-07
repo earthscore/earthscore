@@ -11,7 +11,7 @@ newscapepro, bee and puppycat, find us alive, just roll with it, <br>origins mcr
 oingo boingo, HTML & CSS :3 </p>
 <h4> PLEASE READ MY RENTRY(S)</h4>
 
-SUPPORT VICTIMS ALWAYS! 
+<h2>SUPPORT VICTIMS ALWAYS!</h2>
 
 ![img](https://64.media.tumblr.com/b1ac62b264440b4fa17271951254dae0/c4bb2b240eb65858-5d/s500x750/7c77c52ac6d4a1ea907addc41bcbfd2052e98e0c.gifv)
 
