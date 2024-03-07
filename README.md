@@ -8,8 +8,7 @@
 
  <h4>current interests</h4>
 newscapepro, bee and puppycat, find us alive, just roll with it, <br>origins mcrp,
-oingo boingo, HTML & CSS :3 </p>
-<h4> PLEASE READ MY RENTRY(S)</h4>
+oingo boingo, rentry(s) 4 moree </p>
 
 <h2>SUPPORT VICTIMS ALWAYS!</h2>
 
